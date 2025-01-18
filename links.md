@@ -1,0 +1,3 @@
+- https://discord.com/channels/1127340805741359164/1327998461550792817
+- https://observablehq.com/d/8a13faa861a047a9
+- https://github.com/cyatteau
